@@ -3,6 +3,7 @@
 - I’m looking to collaborate on GitHub with other Java Developers that think like I do. Also creating a Portfolio for Future contracts with companies.
 - Best way to reach me is to text on WhatsApp, Discord, Telegramm or sending me an E-Mail.
 
+
 E-Mail: jnievelstein1@gmail.com
 
 Phone:  01577 8360124
