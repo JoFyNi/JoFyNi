@@ -4,6 +4,13 @@
 - Best way to reach me is to text on WhatsApp, Discord, Telegramm or sending me an E-Mail.
 
 
+My projects that get most of my attention at the moment:
+
+ - https://github.com/JoFyNi/IntelliJ_Java_FileFinderProject
+ - https://github.com/JoFyNi/Administration
+ - https://github.com/JoFyNi/KnowledgeBook
+ 
+
 E-Mail: jnievelstein1@gmail.com
 
 Phone:  01577 8360124
