@@ -15,8 +15,6 @@ E-Mail: jnievelstein1@gmail.com
 
 Phone:  01577 8360124
 
-Instagram:  josh_14_05_
-
 Discord:  Josh? #4734   
 
 
