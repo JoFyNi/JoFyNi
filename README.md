@@ -11,7 +11,7 @@ My projects that get most of my attention at the moment:
  - https://github.com/JoFyNi/KnowledgeBook
  
 
-E-Mail: jnievelstein1@gmail.com
+E-Mail: jnievelstein@outlook.de
 
 Phone:  01577 8360124
 
