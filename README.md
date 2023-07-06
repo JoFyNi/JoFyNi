@@ -13,8 +13,6 @@ My projects that get most of my attention at the moment:
 
 E-Mail: jnievelstein@outlook.de
 
-Phone:  01577 8360124
-
 Discord:  Josh? #4734   
 
 
