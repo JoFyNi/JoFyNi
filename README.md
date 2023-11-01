@@ -19,6 +19,8 @@ My projects that get most of my attention at the moment:
 E-Mail: jnievelstein@outlook.de
 Discord:  Josh? #4734   
 
+I'm not very active on GitHub at the moment as I'm concentrating on my studies. 
+
 
 <!---
 JoFyNi/JoFyNi is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
