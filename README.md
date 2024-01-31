@@ -15,8 +15,6 @@ My projects that get most of my attention at the moment:
  - [https://github.com/JoFyNi/Administration](https://github.com/JoFyNi/Administration/tree/installationPull)
  - https://github.com/JoFyNi/MultiLayerTimeTravel
  
-
-E-Mail: jnievelstein@outlook.de
 Discord:  Josh? #4734   
 
 I'm not very active on GitHub at the moment as I'm concentrating on my studies. 
